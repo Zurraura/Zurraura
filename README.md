@@ -1,4 +1,4 @@
-<img width="392" height="298" alt="1000090160" src="https://github.com/user-attachments/assets/c233be99-2ead-4da1-b8ed-becf47f8f3ad" />
+<img width="1280" height="1280" alt="1000090168" src="https://github.com/user-attachments/assets/a5b47045-de44-4a10-afa4-a53db3081755" />
 
 Hi w2i always ok? i am barely present on PT i almost always just have it open whilst i am doing stuff or uhh drawing or uhh listening to music yeah!! 
 
